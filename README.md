@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **anurag705464@gmail.com**
 
-- 📄 Know about my experiences [anurag Tiwari cv.pdf)
+- 📄 Know about my experiences [click here](/anurag_Tiwari_cv.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
